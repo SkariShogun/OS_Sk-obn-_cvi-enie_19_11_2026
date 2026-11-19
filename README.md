@@ -1,2 +1,2 @@
-# OS_Sk-obn-_cvi-enie_19_11_2026
+# OS_Skusobne_cvicenie_19_11_2026
 # Khrystyna Vinichuk
